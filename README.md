@@ -1,0 +1,11 @@
+- hii !  call me tea, and welcome to my github profile ! !  >,<
+- 
+- ⋆౨ৎ˚⟡˖ ࣪ SOCIALS/WHERE TO FIND ME !
+- discord/tiktok: eternii.tea
+- instagram: luv.mqry
+-
+- ⋆౨ৎ˚⟡˖ ࣪ ABOUT ME ( ˶°ㅁ°) !!
+- omnisexual ^w^
+- klee / wanderer main !
+- plz don't copy my skins ! !
+- nice most of the time, so don't be scared to talk to me or cud ! :3 
