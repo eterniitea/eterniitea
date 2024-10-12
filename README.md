@@ -6,33 +6,33 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=eterniitea&label=Profile%20views&color=f3d4e0&style=flat" alt="eterniitea" /> </p>
 
-- <h3>༺ where to find me ! ༻</h3>
+<h3>༺ where to find me ! ༻</h3>
 - tiktok/discord: eternii.tea
 - instagram: luv.mqry
 
-- <h3>༺ int ! ! ༻</h3>
+<h3>༺ int ! ! ༻</h3>
 - plez int w me i’m very nice i swear
 
-- <h3>༺ games i’ve played/play ༻</h3>
+<h3>༺ games i’ve played/play ༻</h3>
 - hoyo: hi3 , hsr , gi
 - kurogames: wuwa , pgr
 - other : crk , omori , pjsekai
 
-- <h3>༺ extra ༻</h3>
+<h3>༺ extra ༻</h3>
 - i main klee / wanderer !
 - always free 2 talk / cud
 - gi uid : 626602491
 - feel free 2 add me on discord !
 - plez follow me on insta 😓
 
-- <h3>༺ sexuality ! ༻</h3>
+ <h3>༺ sexuality ! ༻</h3>
 - omnisexual >w<
 
-- <h3>༺ copying ༻</h3>
+<h3>༺ copying ༻</h3>
 - plez don’t copi my ponies thanx >~<
   
-- snore mimimi..
-- (ᗒᗣᗕ)''
+snore mimimi..
+(ᗒᗣᗕ)''
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
