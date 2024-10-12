@@ -25,7 +25,7 @@
 ⟢ always free 2 talk / cud
 ⟢ gi uid : 626602491
 ⟢ feel free 2 add me on discord !
-⟢ plez follow me on insta 😓</h5>
+⟢ plez follow me on insta 😓 ⟢ i watch anime</h5>
 
 <h2 align="center">༺ sexuality ! ༻</h2>
 <h5 align="center">⟢ omnisexual</h5>
