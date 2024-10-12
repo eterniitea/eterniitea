@@ -4,35 +4,35 @@
 <h1 align="center">hii ! js call me tea ^_^</h1>
 <h3 align="center">welcome to my github profile ! !</h3>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=eterniitea&label=Profile%20views&color=f3d4e0&style=flat" alt="eterniitea" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=eterniitea&label=Profile%20views&color=f3d4e0&style=flat" alt="eterniitea" /> </p>
 
-<h3>༺ where to find me ! ༻</h3>
-- tiktok/discord: eternii.tea
-- instagram: luv.mqry
+<h2 align="center">༺ where to find me ! ༻</h2>
+<h5 align="center">- tiktok/discord: eternii.tea
+- instagram: luv.mqry</h5>
 
-<h3>༺ int ! ! ༻</h3>
-- plez int w me i’m very nice i swear
+<h2 align="center">༺ int ! ! ༻</h2>
+<h5 align="center">- plez int w me i’m very nice i swear</h5>
 
-<h3>༺ games i’ve played/play ༻</h3>
-- hoyo: hi3 , hsr , gi
+<h2 align="center">༺ games i’ve played/play ༻</h2>
+<h5 align="center">- hoyo: hi3 , hsr , gi
 - kurogames: wuwa , pgr
-- other : crk , omori , pjsekai
+- other : crk , omori , pjsekai</h5>
 
-<h3>༺ extra ༻</h3>
-- i main klee / wanderer !
+<h2 align="center">༺ extra ༻</h2>
+<h5 align="center">- i main klee / wanderer !
 - always free 2 talk / cud
 - gi uid : 626602491
 - feel free 2 add me on discord !
-- plez follow me on insta 😓
+- plez follow me on insta 😓</h5>
 
- <h3>༺ sexuality ! ༻</h3>
-- omnisexual >w<
+<h2 align="center">༺ sexuality ! ༻</h2>
+<h5 align="center">- omnisexual</h5>
 
-<h3>༺ copying ༻</h3>
-- plez don’t copi my ponies thanx >~<
+<h2 align="center">༺ copying ༻</h2>
+<h5 align="center">- plez don’t copi my ponies thanx</h5>
   
-snore mimimi..
-(ᗒᗣᗕ)''
+<h5 align="center">snore mimimi..
+(ᗒᗣᗕ)''</h5>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
