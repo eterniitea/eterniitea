@@ -20,8 +20,9 @@
 
 - <h3>༺ extra ༻</h3>
 - i main klee / wanderer !
-- always free 2 talk / cud [gi uid : 626602491](gi uid : 626602491)
-- - feel free 2 add me on discord !
+- always free 2 talk / cud
+- gi uid : 626602491
+- feel free 2 add me on discord !
 - plez follow me on insta 😓
 
 - <h3>༺ sexuality ! ༻</h3>
