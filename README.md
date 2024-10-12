@@ -7,29 +7,29 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=eterniitea&label=Profile%20views&color=f3d4e0&style=flat" alt="eterniitea" /> </p>
 
 <h2 align="center">༺ where to find me ! ༻</h2>
-<h5 align="center">- tiktok/discord: eternii.tea
-- instagram: luv.mqry</h5>
+<h5 align="center">⟢ tiktok/discord: eternii.tea
+⟢ instagram: luv.mqry</h5>
 
 <h2 align="center">༺ int ! ! ༻</h2>
-<h5 align="center">- plez int w me i’m very nice i swear</h5>
+<h5 align="center">⟢ plez int w me i’m very nice i swear</h5>
 
 <h2 align="center">༺ games i’ve played/play ༻</h2>
-<h5 align="center">- hoyo: hi3 , hsr , gi
-- kurogames: wuwa , pgr
-- other : crk , omori , pjsekai</h5>
+<h5 align="center">⟢ hoyo: hi3 , hsr , gi
+⟢ kurogames: wuwa , pgr
+⟢ other : crk , omori , pjsekai</h5>
 
 <h2 align="center">༺ extra ༻</h2>
-<h5 align="center">- i main klee / wanderer !
-- always free 2 talk / cud
-- gi uid : 626602491
-- feel free 2 add me on discord !
-- plez follow me on insta 😓</h5>
+<h5 align="center">⟢ i main klee / wanderer !
+⟢ always free 2 talk / cud
+⟢ gi uid : 626602491
+⟢ feel free 2 add me on discord !
+⟢ plez follow me on insta 😓</h5>
 
 <h2 align="center">༺ sexuality ! ༻</h2>
-<h5 align="center">- omnisexual</h5>
+<h5 align="center">⟢ omnisexual</h5>
 
 <h2 align="center">༺ copying ༻</h2>
-<h5 align="center">- plez don’t copi my ponies thanx</h5>
+<h5 align="center">⟢ plez don’t copi my ponies thanx</h5>
   
 <h5 align="center">snore mimimi..
 (ᗒᗣᗕ)''</h5>
