@@ -1,29 +1,37 @@
-[(![image](https://github.com/user-attachments/assets/01301dae-f9a6-4a91-a59c-233dcdcffb8e)
+<img align="center" width="1000" src="https://i.pinimg.com/564x/e1/43/14/e1431473120bbc282885bd955d7f5953.jpg">
+
 
 <h1 align="center">hii ! js call me tea ^_^</h1>
 <h3 align="center">welcome to my github profile ! !</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=eterniitea&label=Profile%20views&color=f3d4e0&style=flat" alt="eterniitea" /> </p>
 
-- ༺ where to find me ! ༻ [tiktok/discord: eternii.tea](instagram: luv.mqry)
+- <h3>༺ where to find me ! ༻</h3>
+- tiktok/discord: eternii.tea
+- instagram: luv.mqry
 
-- ༺ int ! ! ༻ **plez int w me i’m very nice i swear**
+- <h3>༺ int ! ! ༻</h3>
+- plez int w me i’m very nice i swear
 
-- ༺ games i’ve played/play ༻ [hoyo: hi3 , hsr , gi](kurogames: wuwa , pgr)
+- <h3>༺ games i’ve played/play ༻</h3>
+- hoyo: hi3 , hsr , gi
+- kurogames: wuwa , pgr
+- other : crk , omori , pjsekai
 
-- ༺ games i’ve played/play ༻ **other : crk , omori , pjsekai**
-
-- ༺ extra ༻ [i main klee / wanderer !](i main klee / wanderer !)
-
+- <h3>༺ extra ༻</h3>
+- i main klee / wanderer !
 - always free 2 talk / cud [gi uid : 626602491](gi uid : 626602491)
+- - feel free 2 add me on discord !
+- plez follow me on insta 😓
 
-- ༺ sexuality ! ༻ **omnisexual >w<**
+- <h3>༺ sexuality ! ༻</h3>
+- omnisexual >w<
 
-- ༺ ponytown ༻ **plez don’t copi my ponies thanx >~<**
-
-- feel free 2 add me on discord ! [plez follow me on insta 😓](plez follow me on insta 😓)
-
-- snore mimimi.. **(ᗒᗣᗕ)՞**
+- <h3>༺ copying ༻</h3>
+- plez don’t copi my ponies thanx >~<
+  
+- snore mimimi..
+- (ᗒᗣᗕ)''
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
