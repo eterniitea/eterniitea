@@ -18,7 +18,7 @@
 <h2 align="center">༺ games i’ve played/play ༻</h2>
 <h5 align="center">⟢ hoyo: hi3 , hsr , gi
 ⟢ kurogames: wuwa , pgr
-⟢ other : crk , omori , pjsekai</h5>
+⟢ other : crk , omori , pjsekai , l&ds</h5>
 
 <h2 align="center">༺ extra ༻</h2>
 <h5 align="center">⟢ i main klee / wanderer !
