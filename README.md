@@ -42,4 +42,4 @@
 <a href="https://discord.gg/eternii.tea" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="eternii.tea" height="30" width="40" /></a>
 </p>
 
-<p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=eterniitea&show_icons=true&theme=tokyonight&title_color=f4a4c0&text_color=dfeed4&bg_color=f9d3e0&locale=en" alt="eterniitea" /></p>
+<p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=eterniitea&show_icons=true&theme=tokyonight&title_color=ffd3da&text_color=d1e5f4&bg_color=fff4f2&locale=en" alt="eterniitea" /></p>
