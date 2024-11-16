@@ -10,7 +10,7 @@
 
 <h2 align="center">༺ where to find me ! ༻</h2>
 <h5 align="center">⟢ tiktok/discord: eternii.tea
-⟢ instagram: luv.mqry</h5>
+⟢ instagram: luv.mqry ⟢ atabook: https://eterniitea.atabook.org/</h5>
 
 <h2 align="center">༺ int ! ! ༻</h2>
 <h5 align="center">⟢ plez int w me i’m very nice i swear ⟢ im afk sometimes but u can still (and always) c+h ! ⟢ im too shy to int myself.. coughs</h5>
@@ -36,7 +36,7 @@
 <h5 align="center">snore mimimi..
 (ᗒᗣᗕ)''</h5>
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">connect with me:</h3>
 <p align="left">
 <a href="https://instagram.com/luv.mqry" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="luv.mqry" height="30" width="40" /></a>
 <a href="https://discord.gg/eternii.tea" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="eternii.tea" height="30" width="40" /></a>
