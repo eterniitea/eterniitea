@@ -4,7 +4,7 @@
 <h1 align="center">hii ! js call me tea ^_^</h1>
 <h3 align="center"> love for you by loveli lori
 ▶︎ •၊၊||၊|။|||||
-⟢ welcome to my github profile ! ! ⟢ yes all those profile views r me</h3>
+⟢ welcome to my github profile ! ! ⟢ yes all those profile views r me ⟢ made this for ponytown but yayy!!</h3>
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=eterniitea&label=Profile%20views&color=f3d4e0&style=flat" alt="eterniitea" /> </p>
 
