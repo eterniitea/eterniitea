@@ -31,7 +31,7 @@
 <h5 align="center">⟢ omnisexual , & that means i like all genders but i prefer men >,< ⟢ demigirl , & that means i go by she/they pronouns !</h5>
 
 <h2 align="center">༺ copying ༻</h2>
-<h5 align="center">⟢ plez don’t copi my ponies thanx</h5>
+<h5 align="center">⟢ plez don’t copi my ponies or use them as refrencess thanx</h5>
   
 <h5 align="center">snore mimimi..
 (ᗒᗣᗕ)''</h5>
