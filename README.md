@@ -2,7 +2,7 @@
 
 
 <h1 align="center">hii ! js call me tea ^_^</h1>
-<h3 align="center"> love for you by loveli lori
+<h3 align="center"> light by wave to earth
 ▶︎ •၊၊||၊|။|||||
 ⟢ welcome to my github profile ! ! ⟢ yes all those profile views r me ⟢ made this for ponytown but yayy!!</h3>
 
