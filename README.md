@@ -10,7 +10,7 @@
 
 <h2 align="center">༺ where to find me ! ༻</h2>
 <h5 align="center">⟢ tiktok/discord: eternii.tea
-⟢ instagram: luv.mqry ⟢ atabook: https://eterniitea.atabook.org/</h5>
+⟢ instagram: strawmqrycake ⟢ atabook: https://eterniitea.atabook.org/</h5>
 
 <h2 align="center">༺ int ! ! ༻</h2>
 <h5 align="center">⟢ plez int w me unless i have a low social bat or smth idk but i’m very nice i swear ⟢ im afk sometimes but u can still (and always) c+h ! ⟢ im too shy to int myself.. coughs ⟢ pls i need friends.</h5>
