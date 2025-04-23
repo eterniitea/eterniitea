@@ -27,8 +27,8 @@
 ⟢ feel free 2 add me on discord !
 ⟢ plez follow me on insta/tiktok 😓 ⟢ i watch anime im such a nerd pls sos.</h5>
 
-<h2 align="center">༺ sexuality ! ༻</h2>
-<h5 align="center">⟢ omnisexual , & that means i like all genders but i prefer men >,< ⟢ demigirl , & that means i go by she/they pronouns !</h5>
+<h2 align="center">༺ me me me ! ༻</h2>
+<h5 align="center">⟢ omnisexual , & that means i like all genders but i prefer men >,< ⟢ pronouns i go by are she/they ! ⟢ im 5teen ^^ </h5>
 
 <h2 align="center">༺ copying ༻</h2>
 <h5 align="center">⟢ plez don’t copi my ponies or use them as refrencess thanx</h5>
