@@ -28,7 +28,7 @@
 ⟢ plez follow me on insta/tiktok 😓 ⟢ i watch anime im such a nerd pls sos.</h5>
 
 <h2 align="center">༺ me me me ! ༻</h2>
-<h5 align="center">⟢ omnisexual , & that means i like all genders but i prefer men >,< ⟢ pronouns i go by are she/they ! ⟢ im 5teen ^^ </h5>
+<h5 align="center">⟢ omnisexual , & that means i like all genders but i prefer men >,< ⟢ the pronouns i go by are she/they ! ⟢ im 5teen ^^ </h5>
 
 <h2 align="center">༺ copying ༻</h2>
 <h5 align="center">⟢ plez don’t copi my ponies or use them as refrencess thanx</h5>
