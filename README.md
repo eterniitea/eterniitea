@@ -9,8 +9,8 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=eterniitea&label=Profile%20views&color=f3d4e0&style=flat" alt="eterniitea" /> </p>
 
 <h2 align="center">༺ where to find me ! ༻</h2>
-<h5 align="center">⟢ tiktok/discord: eternii.tea
-⟢ instagram: strawmqrycake ⟢ atabook: https://eterniitea.atabook.org/</h5>
+<h5 align="center">⟢ discord: eternii.tea
+⟢ tiktok: scarazstar ⟢ instagram: strawmqrycake ⟢ atabook: https://eterniitea.atabook.org/</h5>
 
 <h2 align="center">༺ int ! ! ༻</h2>
 <h5 align="center">⟢ plez int w me unless i have a low social bat or smth idk but i’m very nice i swear ⟢ im afk sometimes but u can still (and always) c+h ! ⟢ im too shy to int myself.. coughs ⟢ pls i need friends.</h5>
