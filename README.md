@@ -20,7 +20,7 @@
 <h5 align="center">⟢ newjeans ⟢ enhypen ⟢ illit ⟢ le sserafim ⟢ twice ⟢ ive ⟢ wave to earth ⟢ katseye ⟢ (g)-idle ⟢ aespa ⟢ kiss of life ⟢ tomorrow x together ⟢ red velvet </h5>
 
 <h2 align="center">༺ fav animes ༻</h2>
-<h5 align="center">⟢ attack on titan ⟢ toilet bount hanako kun ⟢ demon slayer ⟢ a sign of affection ⟢ tokyo ghoul ⟢ saiki k ⟢ ouran high school host club ⟢ frieren ⟢ bungo stray dogs ⟢ mo dao zu shi ⟢ heaven official's blessing ⟢ haikyu ⟢ bluelock ⟢ the promised neverland ⟢ apothecary diaries ⟢ seraph of the end ⟢ kaiju no. 8 ⟢ dandadan ⟢ jujutsu kaisen ⟢ fruit's basket ⟢ my hero academia ⟢ hunter x hunter ⟢ avatar ⟢ deathnote ⟢ little witch academia ⟢ spy x family ⟢ kimi ni todoke ⟢ maid sama ⟢ love, chunibyo and other delusions ⟢ yona of the dawn ⟢ a whisker away ⟢ a silent voice ⟢ your name </h5>
+<h5 align="center">⟢ attack on titan ⟢ assassination classroom ⟢ toilet bount hanako kun ⟢ demon slayer ⟢ a sign of affection ⟢ tokyo ghoul ⟢ saiki k ⟢ ouran high school host club ⟢ frieren ⟢ bungo stray dogs ⟢ mo dao zu shi ⟢ heaven official's blessing ⟢ haikyu ⟢ bluelock ⟢ the promised neverland ⟢ apothecary diaries ⟢ seraph of the end ⟢ kaiju no. 8 ⟢ dandadan ⟢ jujutsu kaisen ⟢ fruit's basket ⟢ my hero academia ⟢ hunter x hunter ⟢ avatar ⟢ deathnote ⟢ little witch academia ⟢ spy x family ⟢ kimi ni todoke ⟢ maid sama ⟢ love, chunibyo and other delusions ⟢ yona of the dawn ⟢ a whisker away ⟢ a silent voice ⟢ your name </h5>
 
 <h2 align="center">༺ me me me ! ༻</h2>
 <h5 align="center">⟢ bisexual ,  i like both men & women but i prefer men >,< ⟢ the pronouns i go by are she/they ! ⟢ im 5teen ^^ </h5>
