@@ -2,14 +2,17 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=eterniitea&label=Profile%20views&color=f3d4e0&style=flat" alt="eterniitea" /> </p>
 
-<h1 align="center">hii ! js call me eternity/tea ^_^</h1>
+<h1 align="center">hai ! ! ⟢ js call me eternity/tea ^_^</h1>
 <h2 align="center">
 ⟢ welcome to my github profile ! ! ⟢ yes all those profile views r me </h2>
 
 <h3 align="center">༺ https://eternitea.straw.page/ ༻</h3>
   
-<h5 align="center">snore mimimi.. ⟢ flashbang warning for my strawpage btw lul
-(ᗒᗣᗕ)''</h5>
+<h4 align="center">snore mimimi.. (ᗒᗣᗕ) ⟢ flashbang warning for my strawpage btw lul</h4>
+
+
+<h4 align="center">"erase me from here, and set me free</h4>
+<h4 align="center">all i wanted was to fly high."</h4>
 
 <h3 align="left">connect with me:</h3>
 <p align="left">
