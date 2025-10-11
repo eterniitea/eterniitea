@@ -9,7 +9,7 @@
 
 <h2 align="center">༺ where to find me ! ༻</h2>
 <h5 align="center">⟢ discord: eternii.tea
-⟢ tiktok: scarazstar ⟢ instagram: strawmqrycake ⟢ atabook: https://eterniitea.atabook.org/</h5>
+⟢ tiktok: scarazstar ⟢ instagram: strawmqrycake ⟢ atabook: https://eterniitea.atabook.org/ ⟢ strawpage: https://eternitea.straw.page/</h5>
 
 <h2 align="center">༺ games i’ve played/play ༻</h2>
 <h5 align="center">⟢ hoyo: hi3 , hsr , gi
