@@ -6,7 +6,7 @@
 <h3 align="center">
 ⟢ welcome to my github profile ! ! ⟢ yes all those profile views r me </h3>
 
-<h2 align="center">༺ https://eternitea.straw.page/) ༻</h2>
+<h2 align="center">༺ https://eternitea.straw.page/ ༻</h2>
   
 <h5 align="center">snore mimimi..
 (ᗒᗣᗕ)''</h5>
