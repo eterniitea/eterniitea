@@ -1,6 +1,7 @@
 <img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/c8739883-535d-43a8-a26c-073d4a126f68" />
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=eterniitea&label=eternal%20loves&color=f5cfe9&style=flat" alt="eterniitea" /> </p>
+
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=eterniitea&label=eternal%20loves&color=b9b0d6&style=flat" alt="eterniitea" /> </p>
 
 <h1 align="center">hai ! ! ⟢ js call me eternity/tea ^_^</h1>
 <h2 align="center">
