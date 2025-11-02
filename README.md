@@ -7,7 +7,8 @@
 <h2 align="center">
 ⟢ welcome to my github profile ! ! ⟢ yes all those profile views r me </h2>
 
-<h3 align="center">༺ https://eternitea.straw.page/ ༻</h3>
+<h3 align="center">༺ https://eternitea.straw.page/ ⟢ https://eterniitea.atabook.org/ ༻</h3>
+<h4 align="center">sign the ata & go ahead & look at my strawpage >o< </h4>
 
 <h4 align="center">"erase me from here, and set me free</h4>
 <h4 align="center">all i wanted was to fly high."</h4>
