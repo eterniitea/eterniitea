@@ -1,5 +1,6 @@
 <img align="center" width="1000" src="https://i.pinimg.com/736x/53/75/12/5375127b5b6f4dd20a6ea1f69761c970.jpg">
 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=eterniitea&label=eternal%20&color=f3d4e0&style=flat" alt="eterniitea" /> </p>
 
 <h1 align="center">hai ! ! ⟢ js call me eternity/tea ^_^</h1>
 <h2 align="center">
