@@ -3,7 +3,7 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=eterniitea&label=eternal%20loves&color=b9b0d6&style=flat" alt="eterniitea" /> </p>
 
-<h1 align="center">hai ! ! ⟢ js call me eternity/tea ^_^</h1>
+<h1 align="center">hai ! ! ⟢ js call me eternity ^_^</h1>
 <h2 align="center">
 ⟢ welcome to my github profile ! ! ⟢ yes all those profile views r me </h2>
 
